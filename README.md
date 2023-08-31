@@ -18,3 +18,8 @@ I am going to see more about the company and write more
 
 That is a shortly off 
 ---------------------------------
+
+Used to hear that the first private equity fund change from Bridgewater Associates to another one, BUT I always believe that the longer you live, the better you are. 
+
+That is a shortly off 
+-----------------------------------
