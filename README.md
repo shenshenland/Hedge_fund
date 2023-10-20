@@ -1,4 +1,4 @@
-# Hedge_fund
+# Bridgewater Associates
 After learning about the start of Bridgewater Associates, have some feelings and I will write here and try my best to do the same for that company.
 I am going to read more about the book Principle. 
 This company is really interesting that only 30% if staff stay there after getting inside within 30 days:
